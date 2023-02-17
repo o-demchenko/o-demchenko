@@ -9,6 +9,7 @@
 - 📫Как связаться со мной: [![Telegram Badge](https://img.shields.io/badge/-Olya_Demchenkoo-blue?style=flat&amp;logo=Telegram&amp;logoColor=white)](https://t.me/Olya_Demchenkoo) [![Gmail Badge](https://img.shields.io/badge/-Gmail-red?style=flat&amp;logo=Gmail&amp;logoColor=white)](mailto:demchenko.2531@gmail.com)
 
 ----
+![image](https://user-images.githubusercontent.com/110450208/219634656-dbb8dd7c-1927-4c7a-80b5-6e3471cc4b2f.png)
 
 #### Социальные сети:
 
